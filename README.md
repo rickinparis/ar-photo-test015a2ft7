@@ -1,1 +1,0 @@
-# ar-photo-test015a2ft7
